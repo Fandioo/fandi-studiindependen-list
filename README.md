@@ -1,1 +1,0 @@
-# fandi-studiindependen-list
